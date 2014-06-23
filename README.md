@@ -1,4 +1,4 @@
-online
+Candyfloss on air
 ======
 
-our main page
+A link to our main site with linkes to our apps, videos and more. 
